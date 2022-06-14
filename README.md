@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @bibizx7
+- 👍:meu email pra contato é gabrieli.vitoria.ferreira@escola.pr.gov.br
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 
+-
